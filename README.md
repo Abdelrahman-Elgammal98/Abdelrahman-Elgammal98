@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Abdelrahman-Elgammal
+- 👀 I’m interested in DevOps
+- 🌱 I’m currently learning DevOps
+- 📫 How to reach me egammal23@gmail.com
+- 📫 How to reach me on whatsapp +201555828452
